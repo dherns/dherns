@@ -23,7 +23,7 @@ With a background in pluripotent stem cell biology, CRISPR gene-editing, and dis
 ---
 
 ## Connect with me:
-- [LinkedIn](https://www.linkedin.com/in/hermandezdamian)  
+- [LinkedIn](http://linkedin.com/in/hernandezdamian)  
 - [GitHub](https://github.com/dherns)
 
 ---
